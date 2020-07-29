@@ -1,2 +1,2 @@
-# FUNDIVI_
-Fundación Vida Digna Boyacá
+# FUNDIVI
+fUNDACION VIDA DIGNA BOYACÁ
